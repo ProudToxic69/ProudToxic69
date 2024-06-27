@@ -1,0 +1,5 @@
+- sup,im @ProudToxic69.
+- interested in MEN <3 😍
+- currently learnin Computer Science.
+- HE/HIM/HIS ✨
+- ⚡ Fun fact: Manipulatin other ppls nerves is my fav hobby 💋
