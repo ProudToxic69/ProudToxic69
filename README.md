@@ -1,4 +1,4 @@
-- sup,im @ProudToxic69.
+- sup, im @ProudToxic69.
 - interested in MEN <3 😍
 - currently learnin Computer Science.
 - HE/HIM/HIS ✨
